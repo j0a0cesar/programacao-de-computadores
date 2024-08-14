@@ -1,1 +1,0 @@
-# programa-o-de-computa-o
